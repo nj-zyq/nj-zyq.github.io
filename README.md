@@ -2,4 +2,4 @@
 
 **My howepage:** https://nj-zyq.github.io/
 
-# 然而我并不想和学术有任何关系TAT
+然而我并不想和学术有任何关系TAT
